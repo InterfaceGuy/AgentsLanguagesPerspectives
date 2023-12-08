@@ -1,0 +1,1 @@
+![](AgentsLanguagesPerspectives.png)![](AgentsLanguagesPerspectives.gif)
